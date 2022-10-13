@@ -46,7 +46,7 @@ MD -
 
 SJ -
 
-SS - 
+SS - Chocolate
 
 MW -
 
