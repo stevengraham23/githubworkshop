@@ -2,13 +2,13 @@
 
 My favourite ice cream flavour is
 
-JD - Cherry
+JD - Strawberry
 
 LC - Orange & Fennel
 
 SDM - 
 
-DH -
+DH - Hokey Pokey
 
 WF -
 
@@ -36,7 +36,7 @@ AW -
 
 DA -
 
-TL - Chocolate!
+TL -
 
 AW -
 
