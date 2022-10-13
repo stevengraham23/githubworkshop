@@ -2,7 +2,7 @@
 
 My favourite ice cream flavour is
 
-JD - Strawberry
+JD - Cherry
 
 LC - Orange & Fennel
 
